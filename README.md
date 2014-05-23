@@ -1,4 +1,4 @@
-auto-bot-dowload-top-nfo-sfv-...
+auto-bot-dowload-top-nfo-sfv-jpg all info 
 ================================
 
 big script the scene 
